@@ -5,6 +5,8 @@ Habermas, J. 2005. *Zwischen Naturalismus und Religion: Philosophische Aufsätze
 
 Habermas, J. and Ratzinger, J. (Pope Benedict XIV). 2011. *Dialektik der Säkularisierung*. Verlag Herder.
 
+Kaufmann, W. 1963. *The Faith of a Heretic*. Doubleday.
+
 Leiter, B. 2014. *Why Tolerate Religion?*. Revised ed. Princeton University Press.
 
 Taylor, C. 2007. *A Secular Age*. Harvard University Press. 
