@@ -12,6 +12,10 @@ Faulkner, W. 1929. *The Sound and the Fury*. Vintage.
 
 Gass, W.H. 2013. *Middle C*. Vintage.
 
+Iyer, L. 2011. *Spurious*. Melville House.
+* 2012\. *Dogma*. Melville House.
+* 2013\. *Exodus*. Melville House.
+
 Kelman, J. 2013. *Mo Said She Was Quirky*. Other Press.
 
 Koeppen, W. 1953. *Das Treibhaus*. Suhrkamp Verlag.
