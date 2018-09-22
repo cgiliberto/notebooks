@@ -55,5 +55,5 @@ Szentkuthy, M. 2013. *Towards the One and Only Metaphor*. Wilkinson trans. Contr
 
 Terry, P. 2013. *tapestry*. Reality Street.
 
-Winkler, J. 1998. *Wenn es soweit ist – Erzählung*. Suhrkamp Verlag. 
+Winkler, J. 1998. *Wenn es soweit ist*. Suhrkamp Verlag. 
 * (Above in English) 2013. *When the Time Comes*. West trans. Contra Mundum Press.
