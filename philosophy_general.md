@@ -1,4 +1,4 @@
-Lloyd, G.E.R. 2012. *Being, Humanity, and Understanding*. Oxforc University Press.
+Lloyd, G.E.R. 2012. *Being, Humanity, and Understanding*. Oxford University Press.
 
 McDowell, J. 1996. *Mind and World*. Harvard University Press.
 
