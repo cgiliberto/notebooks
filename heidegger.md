@@ -2,7 +2,7 @@
 
 ## Secondary
 
-Barash, J.A. 1988. *Martin Heidegger and the Problem of Historical Meaning*. Dodrecht.
+Barash, J.A. 1988. *Martin Heidegger and the Problem of Historical Meaning*. Nijhoff.
 
 Bast, R.A. 1986a. "Ist Heideggers Sein und Zeit ein Patchwork?," *Information Philosophie* 4:18-30.
 
