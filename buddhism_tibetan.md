@@ -1,6 +1,8 @@
 
 Napper, E. 1989. *Dependent-Arising and Emptiness: A Tibetan Buddhist Interpretation of Madhyamika Philosophy*. Wisdom.
 
+Pabongka Rinpoche. 1993. *Liberation in the Palm of Your Hand*. Richards trans. Wisdom.
+
 Pettit, J.W. 2002. *Mipham's Beacon of Certainty: Illuminating the View of Dzogchen, the Great Perfection*. Wisdom.
 
 Samuel, G. 1995. *Civilized Shamans: Buddhism in Tibetan Societies*. Smithsonian.
