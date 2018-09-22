@@ -7,15 +7,15 @@ Comyns, B. 1959. *The Vet's Daughter*. NYRB Classics.
 Dixon, S. 2013. *His Wife Leaves Him*. Fantagraphics Books.
 
 Faulkner, W. 1929. *The Sound and the Fury*. Vintage.
---. 1930. *As I Lay Dying*. Vintage.
---. 1932. *Light in August*. Vintage.
+* 1930. *As I Lay Dying*. Vintage.
+-* 1932. *Light in August*. Vintage.
 
 Gass, W.H. 2013. *Middle C*. Vintage.
 
 Kelman, J. 2013. *Mo Said She Was Quirky*. Other Press.
 
 Koeppen, W. 1953. *Das Treibhaus*. Suhrkamp Verlag.
---. (Above in English) 2001. *The Hothouse*. Hofmann trans.
+* (Above in English) 2001. *The Hothouse*. Hofmann trans.
 
 Krasznahorkai, L. 2013. *Seiobo There Below*. Mulzet trans. New Directions.
 
@@ -26,20 +26,20 @@ Leskov, N. 2013. *The Enchanted Wanderer*. Pevear and Volokhonsky trans. Knopf.
 McElroy, J. 2013. *Cannonball*. Dzanc Books.
 
 Nabokov, V. 1947. *Bend Sinister*. Vintage.
---. 1955. *Lolita*. Vintage.
---. 1962. *Pale Fire*.
+* 1955. *Lolita*. Vintage.
+* 1962. *Pale Fire*.
 
 Pynchon, T. 1963. *V*. Penguin.
---. 1966. *The Crying of Lot 49*. Penguin.
---. 1973. *Gravity's Rainbow*. Penguin
---. 2013. *Bleeding Edge*. Penguin.
+* 1966. *The Crying of Lot 49*. Penguin.
+* 1973. *Gravity's Rainbow*. Penguin
+* 2013. *Bleeding Edge*. Penguin.
 
 Salter, J. 2013. *All That Is*. Knopf.
 
 Samuels, L. 2013. *Anti M*. Chax Press.
 
 Schwob, M. 1894. *Le Livre de Monelle*. Allia.
---. (Above in English) 2013. *The Book of Monelle*. Schluter trans. Wakefield Press.
+* (Above in English) 2013. *The Book of Monelle*. Schluter trans. Wakefield Press.
 
 Slauerhoff, J.J. 2013. *The Forbidden Kingdom*. Vincent trans. Pushkin Press.
 
@@ -50,4 +50,4 @@ Szentkuthy, M. 2013. *Towards the One and Only Metaphor*. Wilkinson trans. Contr
 Terry, P. 2013. *tapestry*. Reality Street.
 
 Winkler, J. 1998. *Wenn es soweit ist – Erzählung*. Suhrkamp Verlag. 
---. (Above in English) 2013. *When the Time Comes*. West trans. Contra Mundum Press.
+* (Above in English) 2013. *When the Time Comes*. West trans. Contra Mundum Press.
