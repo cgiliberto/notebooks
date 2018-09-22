@@ -9,6 +9,8 @@ Leiter, B. 2014. *Why Tolerate Religion?*. Revised ed. Princeton University Pres
 
 Taylor, C. 2007. *A Secular Age*. Harvard University Press. 
 
+(to read) Zucca, L. 2012. *A Secular Europe: Law and Religion in the European Constitutional Landscape*. Oxford University Press.
+
 Zuckerman, P. 2008. *Society Without God: What the Least Religious Nations Can Tell Us about Contentment*. NYU Press.
 * 2011\. *Faith No More: Why People Reject Religion*. Oxford University Press.
 
