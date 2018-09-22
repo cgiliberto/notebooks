@@ -4,7 +4,9 @@ Dabhoiwala, F. 2012. *The Origins of Sex: A History of the First Sexual Revoluti
 
 Doyle, J. 2015. *Campus Sex, Campus Security*. semiotext(e).
 
-Jordan, M.D. 2002. *The Ethics of Sex*. Wiley-Blackwell.
+(to read) Jordan, M.D. 2002. *The Ethics of Sex*. Wiley-Blackwell.
 
 Laquer, T.W. 1990. *Making Sex: Body and Gender from the Greeks to Freud*. Harvard University Press.
 * 2004\. *Solitary Sex: A Cultural History of Masturbation*. Zone Books.
+
+Luker, K. 1996. *Dubious Conceptions: The Politics of Teenage Pregnancy*. Harvard University Press.
