@@ -1,4 +1,6 @@
 
+Newland, G. 1993. *The Two Truths*. Snow Lion.
+
 Napper, E. 1989. *Dependent-Arising and Emptiness: A Tibetan Buddhist Interpretation of Madhyamika Philosophy*. Wisdom.
 
 Pabongka Rinpoche. 1993. *Liberation in the Palm of Your Hand*. Richards trans. Wisdom.
