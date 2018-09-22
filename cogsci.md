@@ -1,5 +1,7 @@
 Dayan. P. et al. 2005. *Theoretical Neuroscience: Computational and Mathematical Modeling of Neural Systems*. MIT Press.
 
+(to read) Feinberg, T.E. and Mallatt, J.M. 2016. *The Ancient Origins of Consciousness: How the Brain Created Experience*. MIT Press.
+
 Graziano, M.S.A. 2013. *Consciousness and the Social Brain*. Oxford University Press.
 
 Kandel, 2007. *In Search of Memory: The Emergence of a New Science of the Mind*. Norton.
