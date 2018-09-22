@@ -2,3 +2,5 @@ Brown, P. 2012. *Through the Eye of a Needle: Wealth, the Fall of Rome, and the 
 * 2013\. *The Rise of Western Christendom: Triumph and Diversity, A.D. 200-1000*. 10th Anv. Ed. Wiley-Blackwell.
 
 MacCulloch, D. 2010. *Christianity: The First Three Thousand Years*. Viking.
+
+Runciman, W.G. 2004. "The Diffusion of Christianity in the Third Century AD as a Case-Study in the Theory of Cultural Selection," *European Journal of Sociology* 45:3-21.
