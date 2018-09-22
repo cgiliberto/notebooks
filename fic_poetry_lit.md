@@ -26,8 +26,8 @@ Leskov, N. 2013. *The Enchanted Wanderer*. Pevear and Volokhonsky trans. Knopf.
 McElroy, J. 2013. *Cannonball*. Dzanc Books.
 
 Nabokov, V. 1947. *Bend Sinister*. Vintage.
-* 1955. *Lolita*. Vintage.
-* 1962. *Pale Fire*.
+* 1955 *Lolita*. Vintage.
+* 1962 *Pale Fire*.
 
 Pynchon, T. 1963. *V*. Penguin.
 * 1966. *The Crying of Lot 49*. Penguin.
