@@ -9,4 +9,7 @@ Feenberg, A. 2014. *The Philosophy Of Praxis: Marx, Lukács And The Frankfurt Sc
 
 Geuss, R. 1981. *The Idea of a Critical Theory: Habermas & The Frankfurt School*. Cambridge.
 
+Habermas, J. 1968. *Erkenntnis und Interesse*. Suhrkamp.
+* (Above in English) 1971. *Knowledge and Human Interests*. Shapiro trans. Beacon.
+
 McCarthy, T. 1978. *The Critical Theory of Jürgen Habermas*. MIT Press.
