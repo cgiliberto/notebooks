@@ -12,6 +12,8 @@ Faulkner, W. 1929. *The Sound and the Fury*. Vintage.
 
 Gass, W.H. 2013. *Middle C*. Vintage.
 
+Gide, A. 1902. *L'Immoraliste*. Mercure de France.
+
 Iyer, L. 2011. *Spurious*. Melville House.
 * 2012\. *Dogma*. Melville House.
 * 2013\. *Exodus*. Melville House.
