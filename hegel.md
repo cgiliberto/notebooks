@@ -1,5 +1,7 @@
 ## Primary
 
+1821. *Grundlienien der Philosophie des Rechts*. Felix Meinder.
+
 ## Secondary
 
 Buck-Morss, S. 2009. *Hegel, Haiti, and Universal History*. University of Pittsburgh Press.
