@@ -10,6 +10,6 @@ Blattner, W. 2007. *Heidegger's Being and Time: A Reader's Guide*. Continuum.
 
 Gadamer, H.G. 1983. *Heideggers Wege: Studiem zum Spätzwerk*. J.C.B. Mohr.
 
-Haar, M. 1994. *La fracture d l'Histoire: Douze essair sur Heiddeger*. Millon.
+Haar, M. 1994. *La fracture d l'Histoire: Douze essais sur Heiddeger*. Millon.
 
 Philipse, H. 1998. *Heidegger's Philosophy of Being: A Critical Interpretation*. Princeton University Press.
