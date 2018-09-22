@@ -1,4 +1,6 @@
 
+Dreyfus, G.B.J. 2003. *The Sound of Two Hands Clapping: The Education of a Tibetan Buddhist Monk*. University of California Press.
+
 Geshe Rabten and Wallace, A.B. 1980. *The Life and Teaching of Geshe Rabten*. Allen & Unwin.
 
 Newland, G. 1993. *The Two Truths*. Snow Lion.
