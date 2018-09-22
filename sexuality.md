@@ -4,7 +4,14 @@ Dabhoiwala, F. 2012. *The Origins of Sex: A History of the First Sexual Revoluti
 
 Doyle, J. 2015. *Campus Sex, Campus Security*. semiotext(e).
 
+Hocquenghem, G. 1972. *Homosexual Desire*. Editions Universitaires. 
+* (Above in English). 1993. *Homosexual Desire*. Dangoor trans. Duke University PRess.
+
 (to read) Jordan, M.D. 2002. *The Ethics of Sex*. Wiley-Blackwell.
+
+Kaplan, M.B. 1997. *Sexual Justice: Democratic Citizenship and the Politics of Desire*. Routledge.
+
+Lancaster, R.N. 2011. *Sex Panic and the Punitive State*. University of California Press.
 
 Laquer, T.W. 1990. *Making Sex: Body and Gender from the Greeks to Freud*. Harvard University Press.
 * (to read). 2004. *Solitary Sex: A Cultural History of Masturbation*. Zone Books.
