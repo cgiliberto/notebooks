@@ -7,8 +7,8 @@ Comyns, B. 1959. *The Vet's Daughter*. NYRB Classics.
 Dixon, S. 2013. *His Wife Leaves Him*. Fantagraphics Books.
 
 Faulkner, W. 1929. *The Sound and the Fury*. Vintage.
-* 1930. *As I Lay Dying*. Vintage.
--* 1932. *Light in August*. Vintage.
+* 1930\. *As I Lay Dying*. Vintage.
+* 1932\. *Light in August*. Vintage.
 
 Gass, W.H. 2013. *Middle C*. Vintage.
 
@@ -26,13 +26,13 @@ Leskov, N. 2013. *The Enchanted Wanderer*. Pevear and Volokhonsky trans. Knopf.
 McElroy, J. 2013. *Cannonball*. Dzanc Books.
 
 Nabokov, V. 1947. *Bend Sinister*. Vintage.
-* 1955 *Lolita*. Vintage.
-* 1962 *Pale Fire*.
+* 1955\. *Lolita*. Vintage.
+* 1962\. *Pale Fire*.
 
 Pynchon, T. 1963. *V*. Penguin.
-* 1966. *The Crying of Lot 49*. Penguin.
-* 1973. *Gravity's Rainbow*. Penguin
-* 2013. *Bleeding Edge*. Penguin.
+* 1966\. *The Crying of Lot 49*. Penguin.
+* 1973\. *Gravity's Rainbow*. Penguin
+* 2013\. *Bleeding Edge*. Penguin.
 
 Salter, J. 2013. *All That Is*. Knopf.
 
