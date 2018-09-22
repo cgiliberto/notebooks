@@ -18,3 +18,5 @@ Panksepp, J. and Biven, L. 2012. *The Archaeology of Mind: Neuroevolutionary Ori
 Redish, A.D. 2013. *The Mind Within the Brain: How We Make Decisions and How those Decisions Go Wrong*. Oxford University Press.
 
 Rieke, F. et al. 1999. *Spikes: Exploring the Neural Code*. MIT Press.
+
+Shettleworth, S. 2010. *Cognition, Evolution, and Behavior*. 2e. Oxford University Press.
