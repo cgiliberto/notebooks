@@ -1,3 +1,6 @@
+Adorno, T. 1956. *Zur Metakritik der Erkenntnistheorie. Studien über Husserl und die phänomenologischen Antinomien*. Suhrkamp.
+* 1966\. *Negative Dialektik*. Suhrkamp.
+
 Braver, 2007. *A Thing of This World: A History of Continental Anti-Realism*. Northwestern University Press.
 
 van Norden, B.W. 2017. *Taking Back Philosophy: A Multicultural Manifesto*. Columbia University Press.
