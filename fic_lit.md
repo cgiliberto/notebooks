@@ -33,6 +33,8 @@ Nabokov, V. 1947. *Bend Sinister*. Vintage.
 * 1955\. *Lolita*. Vintage.
 * 1962\. *Pale Fire*.
 
+Pollock, D.R. 2008. *Knockemstiff*. Anchor.
+
 Pynchon, T. 1963. *V*. Penguin.
 * 1966\. *The Crying of Lot 49*. Penguin.
 * 1973\. *Gravity's Rainbow*. Penguin
