@@ -1,6 +1,8 @@
 Burnyeat, M.F. 2012. *Explorations in Ancient and Modern Philosophy*. 2 vols. Cambridge University Press.
 
 Geuss, R. 2005. *Outside Ethics*. Princeton University Press.
+* 2014\. *A World Without Why*. Princeton University Press.
+* (to read). 2017. *Changing the Subject: Philosophy from Socrates to Adorno*. Harvard University Press.
 
 Lloyd, G.E.R. 2012. *Being, Humanity, and Understanding*. Oxford University Press.
 
