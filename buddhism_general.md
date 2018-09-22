@@ -1,3 +1,5 @@
+Huntington, C.W. and Wangchen, N. 1995. *Emptiness of Emptiness: An Introduction to Early Indian Madhyamka*. University of Hawaii Press.
+
 Lopez, D.S. 1996. *Elaborations on Emptiness: Uses of the Heart Sutra*. Princeton University Press.
 
 Lopez, D.S. ed. 1992. *Buddhist Hermeneutics*. University of Hawaii Press. 
