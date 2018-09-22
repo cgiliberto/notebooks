@@ -1,3 +1,4 @@
+Adorno, T. 1956. *Zur Metakritik der Erkenntnistheorie. Studien über Husserl und die phänomenologischen Antinomien*. Suhrkamp.
 
 Craik, K. 1943. *The Nature of Explanation*. Cambridge University Press.
 
