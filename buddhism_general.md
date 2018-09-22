@@ -7,4 +7,6 @@ Lopez, D.S. ed. 1992. *Buddhist Hermeneutics*. University of Hawaii Press.
 
 Nattier, J. 1991. *Once Upon A Future Time: Studies in a Buddhist Propechy of Decline*. Asian Humanities Press.
 
+Siderits, M. and Katsura, S. 2013. *Naagaarjuna's Middle Way: Muulamadhyamakakaarikaa*. Translation and commentary. Wisdom.
+
 Stcherbatsky, T.H. 2008. *Buddhist Logic*. Motilal Banarsidass.
