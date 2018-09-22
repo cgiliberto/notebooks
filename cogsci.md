@@ -1,3 +1,6 @@
+
+Craik, K. 1943. *The Nature of Explanation*. Cambridge University Press.
+
 Dayan. P. et al. 2005. *Theoretical Neuroscience: Computational and Mathematical Modeling of Neural Systems*. MIT Press.
 
 (to read) Feinberg, T.E. and Mallatt, J.M. 2016. *The Ancient Origins of Consciousness: How the Brain Created Experience*. MIT Press.
