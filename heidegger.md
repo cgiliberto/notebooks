@@ -12,4 +12,6 @@ Gadamer, H.G. 1983. *Heideggers Wege: Studiem zum Spätzwerk*. J.C.B. Mohr.
 
 Haar, M. 1994. *La fracture d l'Histoire: Douze essais sur Heiddeger*. Millon.
 
+Lukacs, G. 1949. "Heidegger redivivius," *Sinn und Form* 1:37-62.
+
 Philipse, H. 1998. *Heidegger's Philosophy of Being: A Critical Interpretation*. Princeton University Press.
