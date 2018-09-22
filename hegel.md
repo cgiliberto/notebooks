@@ -1,6 +1,6 @@
 ## Primary
 
-1821. *Grundlienien der Philosophie des Rechts*. Felix Meinder.
+1821. *Grundlienien der Philosophie des Rechts*. Felix Meiner.
 
 ## Secondary
 
