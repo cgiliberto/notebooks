@@ -4,8 +4,13 @@ Dabhoiwala, F. 2012. *The Origins of Sex: A History of the First Sexual Revoluti
 
 Doyle, J. 2015. *Campus Sex, Campus Security*. semiotext(e).
 
+Foucault, M. 1976. *La volonté de savoir* (L'Histoire de la sexualité 1). Gallimard.
+* (Above in English). 1978. *The History of Sexuality Vol 1: An Introduction*. Hurley trans. Vintage.
+
+Halperin, D.M. and Hoppe, T. eds. 2017. *The War on Sex*. Duke University Press.
+
 Hocquenghem, G. 1972. *Homosexual Desire*. Editions Universitaires. 
-* (Above in English). 1993. *Homosexual Desire*. Dangoor trans. Duke University PRess.
+* (Above in English). 1993. *Homosexual Desire*. Dangoor trans. Duke University Press.
 
 (to read) Jordan, M.D. 2002. *The Ethics of Sex*. Wiley-Blackwell.
 
