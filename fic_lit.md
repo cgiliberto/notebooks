@@ -4,6 +4,8 @@ Cartarescu, M. 2013. *Blinding*. Cotter trans. Archipelago.
 
 Comyns, B. 1959. *The Vet's Daughter*. NYRB Classics.
 
+Diderot, J. 1796. *Jacques le fataliste*. Flammarion.
+
 Dixon, S. 2013. *His Wife Leaves Him*. Fantagraphics Books.
 
 Faulkner, W. 1929. *The Sound and the Fury*. Vintage.
