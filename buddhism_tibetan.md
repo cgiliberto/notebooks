@@ -1,4 +1,6 @@
 
+Geshe Rabten and Wallace, A.B. 1980. *The Life and Teaching of Geshe Rabten*. Allen & Unwin.
+
 Newland, G. 1993. *The Two Truths*. Snow Lion.
 
 Napper, E. 1989. *Dependent-Arising and Emptiness: A Tibetan Buddhist Interpretation of Madhyamika Philosophy*. Wisdom.
