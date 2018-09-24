@@ -3,6 +3,8 @@ Adorno, T. 1956. *Zur Metakritik der Erkenntnistheorie. Studien über Husserl un
 
 Braver, 2007. *A Thing of This World: A History of Continental Anti-Realism*. Northwestern University Press.
 
+Hintikka, J. 1999. "The Emperor's New Intuitions," *Journal of Philosophy* 96:3:127-147.
+
 van Norden, B.W. 2017. *Taking Back Philosophy: A Multicultural Manifesto*. Columbia University Press.
 
 Stroud, B. 1968. "Transcendental Arguments," *Journal of Philosophy* 65:241-256.
