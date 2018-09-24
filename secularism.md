@@ -9,7 +9,7 @@ Kaufmann, W. 1963. *The Faith of a Heretic*. Doubleday.
 
 Leiter, B. 2014. *Why Tolerate Religion?*. Revised ed. Princeton University Press.
 
-Taylor, C. 2007. *A Secular Age*. Harvard University Press. 
+(to read) Taylor, C. 2007. *A Secular Age*. Harvard University Press. 
 
 (to read) Zucca, L. 2012. *A Secular Europe: Law and Religion in the European Constitutional Landscape*. Oxford University Press.
 
