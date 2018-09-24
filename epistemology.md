@@ -14,6 +14,7 @@ Goldman, A. 1976. "Disrimination and Perceptual Knowledge," *Journal of Philosop
 Haack, S. 2009. *Evidence and Inquiry: A Pragmatist Reconstruction of Epistemology*. Expanded ed. Prometheus Books.
 
 Hintikka, J. 1964. *Knowledge and Belief: An Introduction to the Logic of the Two Notions*. Cornell University Press.
+* 2007\. *Socratic Epistemology: Explorations of Knowledge-Seeking by Questioning*. Cambridge University Press.
 
 Kitcher, P. 1990. "The Division of Cognitive Labor," *Journal of Philosophy* 87:1:5-22.
 
