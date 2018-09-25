@@ -11,6 +11,8 @@ Pabongka Rinpoche. 1993. *Liberation in the Palm of Your Hand*. Richards trans. 
 
 Pettit, J.W. 2002. *Mipham's Beacon of Certainty: Illuminating the View of Dzogchen, the Great Perfection*. Wisdom.
 
+Powers, J. 2007. *Introduction to Tibetan Buddhism*. Rev. ed. Snow Lion.
+
 Samuel, G. 1995. *Civilized Shamans: Buddhism in Tibetan Societies*. Smithsonian.
 
 Smith, E.G. 2001. *Among Tibetan Texts: History and Literature of the Himalayan Plateau*. Wisdom.
